@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ankik2
-- 👀 I’m interested in business and startu
+- 👀 I’m interested in business and startup
 - 🌱 I’m currently pursuing btech in computer science and engineering from NIT MANIPUR.
 - 💞️ I’m looking to collaborate on startups.
 - 📫 How to reach me ...through linkedin and instagram.
